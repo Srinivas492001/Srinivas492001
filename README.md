@@ -8,7 +8,8 @@ I'm Srinivas S, a Data Analyst Leaner passionate about turning data into insight
 - PowerBI..
 - 
 - 📫 How to reach me:
-- LinkedIn:linkedin.com/in/srinivas492001...
-- Email:ssrinivass404@gmail.com
+- LinkedIn:
+[linkedin.com/in/srinivas492001](https://linkedin.com/in/srinivas492001)
+Email:ssrinivass404@gmail.com
   
 -->
